@@ -1,6 +1,16 @@
 ## Hi there 👋
 - 📫 How to reach me:
-  grillotrichard3@gmail.com
+  - grillotrichard3@gmail.com
+  - https://www.linkedin.com/in/maihea-grillot-b0ab21249/
+  
+- ⚡ What I like :
+  - Muay Thai
+  - walking
+  - Gym rat
+  - Cooking (sometimes burn my house)
+  - Anime
+  - Gunpla (Love to build some robots)
+  - Of course coding ✨✨✨
   
 
 
